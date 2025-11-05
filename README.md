@@ -11,5 +11,9 @@ the rich dad:he does't like about many people who aren't try to get sth so he ha
 12, he went to private school
 question page 10-15
 1, the mother grew disstressed as the weeks wore on
-2, rich dad
+2, poor dad
 3, he put the steel pot down and smiled at his dad
+4, he smiles and shook his head
+5, yes
+6, he felt claustrophobic 
+7,the difference in the teo dad's are the character , the action and decision 
