@@ -9,3 +9,7 @@ he was fantical about exercising his mind
 9,the poor dad: he care about many people who are in the same situation as he used to so he wants rich people say more in taxes to help poor people
 the rich dad:he does't like about many people who aren't try to get sth so he had attitude taxes punish tose who produce are reward those who don't produce
 12, he went to private school
+question page 10-15
+1, the mother grew disstressed as the weeks wore on
+2, rich dad
+3, he put the steel pot down and smiled at his dad
