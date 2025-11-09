@@ -17,3 +17,9 @@ question page 10-15
 5, yes
 6, he felt claustrophobic 
 7,the difference in the teo dad's are the character , the action and decision 
+Questions 16-20
+1, i don't work for money,money works for me
+2, he feels boring " it was excruciatingly boring work"
+3, he felt his wage were low ". Now,even at the age of nine in the mid-1950s, 30 cents was nottoo exciting. Comic books cost 10 cents back then, so Iusually spent my money on comic books and went home."
+5,people do two things. some just let life push them around. others get angry and push back
+6, they quit and go looking for another job, a better opportunity, and higher pay
