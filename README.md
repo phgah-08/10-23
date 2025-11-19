@@ -39,3 +39,15 @@ Questions 26-30
 4. how to think and how to controll emotions
 5. yes : "Realizing we had absorbed as much as possible of what he was talking about, rich dad said, “I want you boys to avoid that trap. That is really what I want to teach you. Not just to be rich, because being rich does not solve the problem.
    Qestions 31-36
+1. greed: . It’s perfectly normal to desire something better, prettier, more fun, or exciting. So people also work for money because of desire. They desire money for the joy they think it can buy. But the joy that money brings is often short-lived, and they soon need more money for more joy, more pleasure, more comfort, and more security. So they keep working, thinking money will soothe their souls that are troubled by fear and desire. But money can’t do that
+   fear:the reason many rich people are rich isn’t because of desire, but because of fear. They believe that money can eliminate the fear of being poor, so they amass tons of it, only to find the fear gets worse. Now they fear losing the money. I have friends who keep working even though they have plenty. I know people who have millions who are more afraid now than when they were poor. They’re terrified of losing it all.
+The fears that drove them to get rich got worse. That weak and needy part of their soul is actually screaming louder. They don’t want to lose the big houses, the cars and the high life money has bought them. They worry about what their friends would say if they lost all their money
+   2. yes,because The avoidance of money is just as psychotic as being attached to money :"
+      Rich dad pulled a dollar out of his wallet and gestured to
+the older man. Seeing the money, the derelict came over
+immediately, took the bill, thanked rich dad profusely, and
+hurried off, ecstatic with his good fortune"
+
+3.teach you to master the power of money, instead of being afraid of it. They don’t teach that in school and, if you don’t learn it, you become a slave to money
+4.no :I just want you boys to have a chance to avoid the trap caused by those two emotions, fear and desire. Use them in your favor, not against you. That’s what I want to teach you. I’m not interested in just teaching you to make a pile of money. That won’t handle the fear or desire. If you don’t first handle fear and desire, and you get rich, you’ll only be a highly paid slave
+5.when most people use fear and greed against themselves trang 49
