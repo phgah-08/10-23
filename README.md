@@ -32,3 +32,10 @@ secure. So passion does not direct them. Fear does
 5,What are you boys doing?
   And what is in those plaster molds?
 6,You’re only poor if you give up. The most important thing is that you did something. Most people only talk and dream of getting rich. You’ve done something. I’m very proud of the two of you. I will say it again: Keep going. Don’t quit
+Questions 26-30
+1. because the rich dad said:"They work very hard for little money, clinging to the illusion of job security and looking forward to a threeweek vacation each year and maybe a skimpy pension after forty-five years of service. If that excites you, I’ll give you a raise to 25 cents an hour
+2. yes : "My little brain and heart nearly exploded. After all, it was 1956 and being paid $2 an hour would have made me the richest kid in the world. I couldn’t imagine earning that kind of money. I wanted to say yes. I wanted the deal. I could picture a new bicycle, new baseball glove, and the adoration of my friends when I flashed some cash"
+3. the boys were silent and realized the offer was too big and ridiculous
+4. how to think and how to controll emotions
+5. yes : "Realizing we had absorbed as much as possible of what he was talking about, rich dad said, “I want you boys to avoid that trap. That is really what I want to teach you. Not just to be rich, because being rich does not solve the problem.
+   Qestions 31-36
