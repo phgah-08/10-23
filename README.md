@@ -51,3 +51,9 @@ hurried off, ecstatic with his good fortune"
 3.teach you to master the power of money, instead of being afraid of it. They don’t teach that in school and, if you don’t learn it, you become a slave to money
 4.no :I just want you boys to have a chance to avoid the trap caused by those two emotions, fear and desire. Use them in your favor, not against you. That’s what I want to teach you. I’m not interested in just teaching you to make a pile of money. That won’t handle the fear or desire. If you don’t first handle fear and desire, and you get rich, you’ll only be a highly paid slave
 5.when most people use fear and greed against themselves trang 49
+  Questions 36-40
+1.according to rich dad MBA have education problem because all too often business schools train employees to become sophisticated bean-counters. Heaven forbid a bean-counter takes over a business. All they do is look at the numbers, fire people, and kill the business
+2.the words , thinks
+3.It is only because of the illusion of confidence and the ignorance of the masses that this house of cards stands.
+4.because let her be a librarian for their comic-book library
+5.because they could never quite find someone as trustworthy and dedicated as Mike’s sister
