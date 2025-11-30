@@ -57,3 +57,17 @@ hurried off, ecstatic with his good fortune"
 3.It is only because of the illusion of confidence and the ignorance of the masses that this house of cards stands.
 4.because let her be a librarian for their comic-book library
 5.because they could never quite find someone as trustworthy and dedicated as Mike’s sister
+   Questions 41-45
+1. Retirement does not mean not working.For us, it means that, barring unforeseen cataclysmic changes, we can work or
+not work, and our wealth grows automatically, staying ahead of inflation. Our assets are large enough to grow by
+themselves. It’s like planting a tree. You water it for years, and then one day it doesn’t need you anymore. Its roots are implanted deep enough. Then the tree provides shade for 
+2. there will be many booms and busts in the coming years that will parallel the ups and downs these men faced
+3. it means : most people try to get rich without building finacial literacy
+4. make it simple by teaching it in pictures. since they were just kids, teaching with pictures will understand the simple drawings, the jargon, the movement of money
+5. because they lack financial education
+   Question 46-55
+1. no
+2. The rich acquire assets, and the poor and middle class acquire liabilities
+3. because money often makes obvious our tragic human flaws, putting a spotlight on what we don’t know
+4. positive development
+5. 
