@@ -70,4 +70,18 @@ themselves. It’s like planting a tree. You water it for years, and then one da
 2. The rich acquire assets, and the poor and middle class acquire liabilities
 3. because money often makes obvious our tragic human flaws, putting a spotlight on what we don’t know
 4. positive development
+    Questions 56-65
+1. All too often, the poor and middle class allow the power of money to control them.By not fully understanding money, the vast majority of people allow its awesome power to control them
+2. he held meetings with his bankers, attorneys, accountants, brokers, investors, managers, and employees. Here was a man who had left school at 13 who was now directing, instructing, ordering, and asking questions of educated people
+3. no :"One day my dad told me that our home was his greatest investment. A not-too-pleasant argument took place when I showed him why I thought a house was not a good investment."
+4. The house became a debt burden to pay for expenses.
+5. loss of time , loss of additional capital, loss ò education
+6. no, the philosophy that a pay raise means you can buy a larger home or spend more, is the foundation of today’s debtridden society
+    Questions 66-75
+1. mutual funds are popular because they supposedly represent safety. Average mutual-fund buyers
+are too busy working to pay taxes and mortgages, save for their children’s college, and pay off credit cards. They do not have time to study investing, so they rely on the expertise of the manager of a mutual fund. Also, because the mutual fund includes many different types of investments, they feel their money is safer because it is “diversified.” This educated middle class subscribes to the dogma put out by mutual-fund brokers and financial planners: “Play it safe. Avoid risk.”
+2. net worth—the difference between your assets and liabilities ;net worth often includes non-cash-producing assets, like stuff you bought that now sits in your garage, wealth measures how much money your money is making and, therefore, your financial survivability
+3. because In his business plan, Ray knew that the primary business focus was to sell hamburger franchises, but what he never lost sight of was the location of each franchise. He knew that the land and its location were the most significant factors in the success of each franchise. Basically, the person who bought the franchise was also buying the real estate under the franchise for Ray Kroc’s organization
+4. a profession is the job you are trained to do to make money
+   a business is how you manage your money and assets outside your profession
 5. 
