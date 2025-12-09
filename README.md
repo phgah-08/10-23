@@ -84,4 +84,10 @@ are too busy working to pay taxes and mortgages, save for their children’s col
 3. because In his business plan, Ray knew that the primary business focus was to sell hamburger franchises, but what he never lost sight of was the location of each franchise. He knew that the land and its location were the most significant factors in the success of each franchise. Basically, the person who bought the franchise was also buying the real estate under the franchise for Ray Kroc’s organization
 4. a profession is the job you are trained to do to make money
    a business is how you manage your money and assets outside your profession
-5. 
+
+Questions 76-85
+1. yes ,because income-generation real estate
+2. yes, because that rich people buy luxuries last, while the poor and middle class tend to buy luxuries first
+3. because that both of these taxes were initially levied against only the rich
+4. by telling the poor and the middle class that taxes were created only to punish the rich
+5. The rich created the corporation as a vehicle to limit their risk to the assets of each voyage
