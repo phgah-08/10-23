@@ -91,3 +91,11 @@ Questions 76-85
 3. because that both of these taxes were initially levied against only the rich
 4. by telling the poor and the middle class that taxes were created only to punish the rich
 5. The rich created the corporation as a vehicle to limit their risk to the assets of each voyage
+   Questions 86-95
+1. +I was making a lot of money, but every time I looked at my paycheck, I was disappointed. The deductions were so large and, the more I worked, the greater they became
+   + because he realized that their were in the beginning stages of a boom,the more Xerox machines he sold. The more he sold, the more money he made and, of course, the more deductions came out of my paycheck
+2. tax advantages , protection from lawsuits
+3. use corperations, trusts
+4. câu 1 phần trên
+5. she went out and bought her Mercedes. It didn’t take any extra work or risk on her part because the apartment house bought the car. She did, however, have to wait four years while the
+real estate investment portfolio grew and began generating enough extra cash flow to pay for the car. But the luxury, the Mercedes, was a true reward because she proved she knew how to grow her asset column. That car now means a lot more to her than simply another pretty car. It means she used her financial intelligence to afford it.
