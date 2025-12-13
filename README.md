@@ -99,3 +99,15 @@ Questions 76-85
 4. câu 1 phần trên
 5. she went out and bought her Mercedes. It didn’t take any extra work or risk on her part because the apartment house bought the car. She did, however, have to wait four years while the
 real estate investment portfolio grew and began generating enough extra cash flow to pay for the car. But the luxury, the Mercedes, was a true reward because she proved she knew how to grow her asset column. That car now means a lot more to her than simply another pretty car. It means she used her financial intelligence to afford it.
+    Questions 96-105
+1. many people truggling "I find so many people struggling today, often working harder, simply because they cling to old ideas. They want things to be the way they were, and they resist change"
+2. because Just to have more options "Because if you do, you will prosper greatly. And if you don’t, this period of time will be a frightening one. It will be a time of watching some people move boldly forward while others cling to worn-out life preservers."
+   or : ? Because they want to be the kind of person who creates their own luck "You take whatever happens and make it better"
+3. The problem with saving is that money loses value due to inflation and taxes
+4. i don't know
+     Questions 106-115
+1. The key factor was knowledge and timing, not money.
+2. “Novices” means beginners or inexperienced people, especially those who are new to investing or finance.
+3. According to the author, real estate presents lower risk than stocks—if the investor is financially educated.
+4
+5. i don't know
